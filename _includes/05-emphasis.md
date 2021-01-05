@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+I'm a really **fast learner**. I think that's the best *quality* of myself at the top of my mind. But also, I'm not quite disciplined, so that can be a drawback  sometimes when I have work deadlines. I'm seriously working about this issue thoght. I'm currently practicing mindfullnes at least 10 minutes per day so I hope I can train my mind not to get distracted whit every flying fly. 
