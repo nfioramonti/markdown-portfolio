@@ -1,1 +1,6 @@
-Replace this with a list of your favorite things.
+## Things I love to do:
+- Acting
+- Dancing
+- Reading
+- Drawing
+- Learning new skills
